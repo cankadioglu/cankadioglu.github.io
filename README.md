@@ -1,1 +1,0 @@
-# cankadioglu.github.io
